@@ -1,8 +1,3 @@
 # test
 
-SDFDSF
-但是士大夫但是
-XXXXX
-XXXXX
-XXXXX
-
+前一天晚上别人提交了
